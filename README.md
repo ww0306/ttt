@@ -1,14 +1,14 @@
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：https://qq.com.bh02.xyz
+##### :heart: :point_right: 【地址一】 ：https://qq.com.bh811.top
 
-##### :heart: :point_right: 【地址二】 ：https://jz90.xyz
+##### :heart: :point_right: 【地址二】 ：https://qq.com.mifeng12.top
 
-##### :heart: :point_right: 【地址三】 ：https://mf60.xyz
+##### :heart: :point_right: 【地址三】 ：https://qq.com.bh120.top
 
-##### :heart: :point_right: 【地址四】 ：https://boshitv.xyz
+##### :heart: :point_right: 【地址四】 ：https://bs201.top
 
-##### :heart: :point_right: 【永久地址】 ：https://baihtv.xyz
+##### :heart: :point_right: 【永久地址】 ：https://qq.com.bh810.top
 
 ##### :heart: :point_right: 【友情链接】 ：https://mifengtv.xyz
 
